@@ -4,6 +4,7 @@ gospel songs (first 4 songs for caroling on 2017/12/24)
 2) Go Tell it on the Mountain (bilingual)
 
 Score1 (D Major):http://www.pianolessons4children.com/sheetmusic/Go_Tell_It_on_the_Mountain_D_Major.pdf
+
 Score2 (African): https://hymnary.org/media/fetch/110979
 
 African style MercyMe: https://www.youtube.com/watch?v=VvydFKT6ZJ0
