@@ -6,3 +6,5 @@ gospel songs (first 4 songs for caroling on 2017/12/24)
 4) We Wish You a Merry Christmas (Eng)
 5) Jingle Bells
 6) Amazing Grace
+
+Hi, first two songs might be sung both in Chinese and in English versions, as we will visit some Chinese families, and Homeless Shelter.
